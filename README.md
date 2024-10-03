@@ -15,4 +15,6 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-I love learning!
+Just a humble learner of any new technology... 😎
+
+Aaaand huge Galatasaray fan! 🔴🟡
